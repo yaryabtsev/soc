@@ -178,5 +178,5 @@ B:> ты бегаешь в нем?
 и Бегбедера, как писателя, зашла в тупик.
 
 
-#### [Запись](https://drive.google.com/drive/folders/1T8agqWVmEIWlDmLBVne4Et7kQKTnnZpu)
+#### [Запись](https://github.com/yaryabtsev/soc/blob/main/%D0%93%D0%BE%D0%BB%D0%BE%D1%81%20001.mp4?raw=true)
 
